@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Waleed bassam.. live in Egypt
+- 👀 I’m interested in in groceries and everything related to cheese
+- 🌱 I’m currently learning to create different, distinctive flavors of cheese from different flavors, and I am on my way to opening an unusual cheese shop that combines strong tastes, smart scents, and warm music.
+- 💞️ I’m looking to collaborate on exchanging experiences.
+- 📫 How to reach me heartness19@yahoo.com
+- 😄 Feel free to contact me.
